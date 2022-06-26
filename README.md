@@ -1,4 +1,4 @@
-👋 Hi, I’m Lindsey Baltz, Career Coach Manager and aspiring Technical Recruiter
+👋 Hi, I’m Lindsey Baltz, Career Coach Manager and aspiring Technical Recruiter/Sourcer!
 
 👀 I’m interested in ...
 -   Technical recruiting
