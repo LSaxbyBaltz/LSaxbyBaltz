@@ -2,8 +2,11 @@
 
 👀 I’m interested in ...
 -   Technical recruiting
--   Interviewing
+-   Technical sourcing
 -   Career coaching
+
+🏃‍♀️ Upcoming long runs
+ -Disney Marathon 2023 (dressing as one of my favorite Disney characters, Figment!)
 
 🌱 I’m currently learning ...
 -   How to be a technical recruiter
