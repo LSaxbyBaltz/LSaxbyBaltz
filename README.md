@@ -8,9 +8,15 @@
 🏃‍♀️ Upcoming long runs
 -   Disney Marathon 2023 (dressing as one of my favorite Disney characters, Figment!)
 
+👸 Disney favorites
+-   Princesses: Aurora and Jasmine
+-   WDW wide: Journey into Imagination
+-   Movies: Nightmare before Christmas, Aladdin, and Encanto
+
 🌱 I’m currently learning ...
 -   How to be a technical recruiter
 -   Basic coding
+-   Becoming a Certified Personal Trainer through ACE
 
 💞️ I’m looking to collaborate on ...
 -   Building successful careers
