@@ -6,7 +6,7 @@
 -   Career coaching
 
 🏃‍♀️ Upcoming long runs
- -Disney Marathon 2023 (dressing as one of my favorite Disney characters, Figment!)
+-   Disney Marathon 2023 (dressing as one of my favorite Disney characters, Figment!)
 
 🌱 I’m currently learning ...
 -   How to be a technical recruiter
