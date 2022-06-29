@@ -10,7 +10,7 @@
 
 👸 Disney favorites
 -   Princesses: Aurora and Jasmine
--   WDW wide: Journey into Imagination
+-   WDW ride: Journey into Imagination
 -   Movies: Nightmare before Christmas, Aladdin, and Encanto
 
 🌱 I’m currently learning ...
