@@ -1,20 +1,17 @@
-👋 Hi, I’m Lindsey Baltz, Career Coach Manager and aspiring Technical Recruiter/Sourcer!
+👋 Hi, I’m Lindsey Baltz, Career Coach Manager, specifically working with Coding bootcamps!
 
 👀 I’m interested in ...
--   Technical recruiting
--   Technical sourcing
--   Career coaching
+-   Technical career coaching
+-   Working with software developers/engineers/other coding-related roles
+-   Running and strenght training
+-   Goldendoodles
+-   Exploring cultures through food
 
 🏃‍♀️ Upcoming long runs
 -   Disney Marathon 2023 (dressing as one of my favorite Disney characters, Figment!)
 
-👸 Disney favorites
--   Princesses: Aurora and Jasmine
--   WDW ride: Journey into Imagination
--   Movies: Nightmare before Christmas, Aladdin, and Encanto
-
-🌱 I’m currently learning ...
--   How to be a technical recruiter
+🌱 I’m currently learning more about...
+-   Technical recruiting to best support my students
 -   Basic coding
 -   Becoming a Certified Personal Trainer through ACE
 
